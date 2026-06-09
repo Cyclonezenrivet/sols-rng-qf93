@@ -1,4 +1,4 @@
-
+sol's rng Scripts premium is the best sol's rng Script, featuring auto-farm and infinite resources. Safe and powerful for all your needs.
 
 
 
